@@ -1,1 +1,0 @@
-# AR_otsuchig01ru
